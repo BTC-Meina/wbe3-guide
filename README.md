@@ -1,4 +1,4 @@
-# Bybit邀请码2026｜最新Bybit Referral Code：BYOFFICIAL｜手续费返佣、新人奖励与注册教程
+# Bybit邀请码2026｜最新Bybit Referral Code：BYOFFICIAL｜手续费返佣最高33%、新人奖励与注册教程
 
 ## Bybit邀请码2026最新版
 
